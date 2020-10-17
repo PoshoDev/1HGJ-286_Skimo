@@ -1,0 +1,1 @@
+![](https://raw.githubusercontent.com/PoshoDev/1HGJ-286_Skimo/master/Preview.gif)
